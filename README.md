@@ -7,4 +7,5 @@
 # dev2
 くぁｚｗｓぇｄｃｒｆｖｔｇｂｙｈぬｊみｋ、おｌg
 ｑａｗｓｅｄｒｆｔｇｙｈｕｊｉｋｏｌｐ
+kokokokokokokokokokokoko
 tyytytytytyyytytyyttttyyyyyytt
